@@ -230,4 +230,4 @@ Monster Hunter: World is available as a complete free version with all features 
 Dive into the world of colossal monsters and exhilarating adventures—**download Monster Hunter: World free today!**
 
 ---
-**Last updated:** 2026-10-17 23:35:56 UTC
+**Last updated:** 2026-10-18 01:56:29 UTC
